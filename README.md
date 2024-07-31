@@ -11,4 +11,4 @@ Meu nome é Paola Gomes
 
 00001106252342sp@al.educacao.sp.gov.br
 
-![]https://tenor.com/pt-BR/view/emoji-wink-thumbs-up-good-job-great-gif-13218914
+![](https://tenor.com/pt-BR/view/mandela-gif-12632218155512748008)
