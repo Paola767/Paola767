@@ -5,7 +5,7 @@ Meu nome é Paola Gomes
 
 •Sou estudante do terceiro ano do ensino médio
 
-•Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+•Realizo diversos cursos na plataforma Alura
 
 **Entre em contato comigo** 👇😁
 
